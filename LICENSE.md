@@ -1,4 +1,4 @@
-#  
+#  Top brainrot evolution script is the best brainrot evolution script with esp and anti-ban. Safe, reliable, and optimized for maximum performance.
 
 
 
